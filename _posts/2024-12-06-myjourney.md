@@ -1,5 +1,5 @@
 ---
-title: "My-Journey,-How-I-Became-an-Entrepreneur"
+title: "My Journey, How I Became an Entrepreneur"
 date: 2024-12-06
 ---
 **The Life Altering Event:**
