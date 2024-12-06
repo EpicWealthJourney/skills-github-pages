@@ -14,7 +14,7 @@ techician(auto mechanic) for 9 years, and master certified for 5 of them.
 The accident happened in 2015. I was driving on Granada Blvd. in Ormond Beach. I'd just gotten off of the interstate when I'd come upon a long line of traffic stopped at a light.
 I was feet from the left turn lane for that light. I saw the light turn green and traffic started to move when I heard the crashing noises! I thought, "What is that!" while looking at 
 contorting vehicles in my rearview mirror. "If I could just get to that turn lane!" I thought. Time slowed to a crawl. But it was too late! I felt my car jerk, not hard, but I definitely felt it.
-"Okay, that wasn't as bad as I thought it would be" I thought as I pulled my car off into the median. I got out to see what happened behind me.
+"Okay, that wasn't as bad as I thought it would be" I said to myself as I pulled my car off into the median. I got out to see what happened behind me.
 
 The scene was strange. I'd been in this situation several times before. (My first car was totaled this way. Someone wasn't paying attention and slammed into a line of cars I was in while taking my 
 brother to a friend's house.) I went back to the SUV that I perceived caused the whole thing. When I got there the scene was so vivid! The front end of the SUV was in pieces all over the road. 
@@ -35,22 +35,22 @@ They gave me lip service but the business needs what it needs. There was little 
 
 As the reality began to sink in deeper and deeper into my thick stubbourn skull, "I can't do this for much longer" I came up with a plan. I would go ahead and get a degree in engineering! I could at least 
 start the classes while I was still working there. But I'd need accomodations. I would need to be able to attend night classes and be off on the weekend for Saturday classes. It was working beautifly! They 
-gave me a position as the used car specialist inspecting and repairing used cars for the used car sales lot. This allowed me to work on weekdays only. But one fateful day that all changed...
+gave me a position as the used car specialist inspecting and repairing used cars for the used car sales lot. This allowed me to work on weekdays only. But one fateful day everything changed...
 
 When I first turned the key, it didn't start. It cranked, and cranked, and cranked some more, then sputtered, then stumbled, then finally started with a cloud of blue smoke from the tailpipe which enveloped
-the entire car! I immediately shut it off! I had already checked the oil level, a proper first step while inspecting a used vehicle, which was fine. I then did a check with the oil cap off for any signs of 
+the entire car! I immediately shut it off! I had already checked the oil level, a proper first step while inspecting a used vehicle. The oil level was fine. I then did a check with the oil cap off for any signs of 
 an obvious internal problem. To my surprise, this car looked like it had never had an oil change! If I remeber correctly, it had over 50,000 miles! I recommended the car be sent to auction and not sold on 
 the lot. The biggest lesson of my life came next, never second guess your decision as an expert! If someone finds you were wrong, humbly accept the findings and learn from it. But never, and I mean NEVER 
 go back on your original recommendation if you hold some doubt!
 
-So what happened? The Honda I was inspecting was fairly young. These were decent quality vehicles, usually very reliable. What's more, when I went to pull it out of my bay following the initial inspection, 
-the same symptom never manifested. I decided the following day I'd try starting it one more time. After all, the dealership spent money on this vehicle and they'd likely lose money if they sent it to auction
+So what happened? The Honda I was inspecting was fairly young. These were decent quality vehicles, usually very reliable. What's more, I experienced no stumbling, spuddering, or smoking when I went to pull it out of my bay following the initial inspection. 
+The same symptoms never manifested. I decided the following day I'd try starting it one more time. After all, the dealership spent money on this vehicle and they'd likely lose money if they sent it to auction
 when it was intended to be sold on the lot. So first thing in the morning, at the beginning of my shift I cranked it up. Still no repeat symptom. I happened to catch the sales manager on his way in and let him
 know what I'd found. "Great news, I decided to double check this car and it appears it wants to start normally every time for me. You might be able to sell that car worry free anyway with a little maintenance 
 update."
 
-Later that day I was called into my service managers office. I was confused! Apparently I was being accused of "not wanting to work on the car." What I didn't know at the time was, the sales manager and my 
-service manager had been feuding. The sales manager took my information, mocked my service manager, making her look silly, and naturally I was the one to blame. Before I knew it I was on a one day suspension 
+Later that day I was called into my service manager's office. I was confused! Apparently I was being accused of "not wanting to work on the car." What I didn't know at the time was, the sales manager and my 
+service manager had been feuding. The sales manager took my information, mocked my service manager, making her look silly, and naturally I was the one to blame. Before I knew it, I was on a one day suspension 
 without pay while another technician would 'inspect the vehicle' to see if the symptom I'd claimed happend, the stumbling, spuddering, and smoking, was actually occuring. I was in a no-win situation. I was 
 about to lose my job! And what's worse, I knew nothing would happen for that other tech becuase I couldn't reproduce the symptom! And the most revolting thing of all, I was telling the truth!
 
@@ -61,7 +61,7 @@ It didn't matter. "You have two options," after a discussion about the situation
 
 While you would expect I realized on this day, "I must do my own thing!" I did not. My beloved dog was dying! I got a call from my dad for help right after this meeting. My dog had been in a seizure for several 
 minutes and my dad couldn't get him out. I immediately headed out, told them I'd be back to collect my things, and took my dad with my dog to the vet. He never recovered from the seizure. We had to put him down...
-This was by far the most painful day of my life, up to this point!
+This was by far the most painful day of my life, up to that point!
 
 **Shaking Programming Won't Happen Overnight:**
 
@@ -74,7 +74,7 @@ entrepreneur!
 
 Or so I thought...
 
-I wasn't very much longer before I got that fateful call. From my frined with the auto shop, "Hey, we can bring you on now..." 
+It wasn't very much longer before I got that fateful call from my friend with the auto shop, "Hey, we can bring you on now..." 
 
 I didn't know what to do! "Do I say no? Do I partner as a cooperative business? After all I just formed this company, bought all this equipment, and decided to start." I did the comfortable thing. I decided to 
 contract work with them through my newly formed business. 
