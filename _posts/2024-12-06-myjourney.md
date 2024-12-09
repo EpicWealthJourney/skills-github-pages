@@ -6,19 +6,19 @@ date: 2024-12-06
 
 "I'd never felt pain like this before in my life! I don't believe in suicide. But if the pain persists like this forever, I don't see a way to continue! O Lord, please help me!"
 
-These were the thoughts going through my head in 2017. I knew I needed a different career path. That's why one year prior, in 2016, I decided to enroll back in college for engineering.
+These were my thoughts in 2017. I knew I needed a different career path. That's why one year prior, in 2016, I decided to enroll back into college for engineering.
 
-But here I was between classes, poping half a container of ibuprofin(the only thing I could get my hand on) with no effect, just trying to kill the pain! I'd been an automotive 
+But here I was between classes, popping half a container of ibuprofin(the only thing I could get my hands on) with no effect, just trying to kill the pain! I'd been an automotive 
 techician(auto mechanic) for 9 years, and master certified for 5 of them.
 
 The accident happened in 2015. I was driving on Granada Blvd. in Ormond Beach. I'd just gotten off of the interstate when I'd come upon a long line of traffic stopped at a light.
-I was feet from the left turn lane for that light. I saw the light turn green and traffic started to move when I heard the crashing noises! I thought, "What is that!" while looking at 
+I heard the crashing noises while setting feet from the left turn lane for that light, I saw it turn green and traffic started to move! I thought, "What is that!" while looking at 
 contorting vehicles in my rearview mirror. "If I could just get to that turn lane!" I thought. Time slowed to a crawl. But it was too late! I felt my car jerk, not hard, but I definitely felt it.
 "Okay, that wasn't as bad as I thought it would be" I said to myself as I pulled my car off into the median. I got out to see what happened behind me.
 
 The scene was strange. I'd been in this situation several times before. (My first car was totaled this way. Someone wasn't paying attention and slammed into a line of cars I was in while taking my 
-brother to a friend's house.) I went back to the SUV that I perceived caused the whole thing. When I got there the scene was so vivid! The front end of the SUV was in pieces all over the road. 
-The front end of the vehicle was impaced so hard it collapsed the frame in the front end and jammed the front doors of the truck shut. The woman was yelling, we can't get out! So I pryed the driver 
+brother to a friend's house.) I went back to the SUV which caused the whole thing. When I got there, the scene was so vivid! The front end of the SUV was in pieces all over the road. 
+The front end of the vehicle was impacted so hard it collapsed the frame in the front end and jammed the front doors of the truck shut. The woman was yelling, we can't get out! So I pried the driver 
 door open and ushered her and her son out of the SUV because other cars were driving up feet from the wreckage at full speed, swerving to avoid hitting the immobilized vehicle! They were in danger!
 
 I knew she had done tremendous damage and she was wrought with remorse, even yelling something to the effect "I was yelling at my son. I didn't mean for this to happen." This scene will forever be seered
@@ -30,7 +30,7 @@ Thinking I could simply continue my job and recover from the back pain through c
 there was no way to proceed in the career I'd worked so hard to obtain mastery in. I spoke to my managers at the dealership for which I worked and asked them if they could please send me more jobs which 
 would allow for less heavy lifting, pulling, or twisting. It was here I realized, if I wanted it my way I was on a fools errand. 
 
-They gave me lip service but the business needs what it needs. There was little to no change in workload. Maybe they didn't believe that I was in pain despite the fact I'd been trying muscle relaxants,
+They gave me lip service but the business needs what it needs. There was little to no change in workload. Maybe they didn't believe that I was in pain despite the fact I'd been trying muscle relaxants at night,
  prescribed to me by the neurosurgeon, to relieve the pain. I soon had to stop them because they would still be affecting me at work! "I can't drive customer cars like this!" I thought...
 
 As the reality began to sink in deeper and deeper into my thick stubbourn skull, "I can't do this for much longer" I came up with a plan. I would go ahead and get a degree in engineering! I could at least 
@@ -39,20 +39,20 @@ gave me a position as the used car specialist inspecting and repairing used cars
 
 When I first turned the key, it didn't start. It cranked, and cranked, and cranked some more, then sputtered, then stumbled, then finally started with a cloud of blue smoke from the tailpipe which enveloped
 the entire car! I immediately shut it off! I had already checked the oil level, a proper first step while inspecting a used vehicle. The oil level was fine. I then did a check with the oil cap off for any signs of 
-an obvious internal problem. To my surprise, this car looked like it had never had an oil change! If I remeber correctly, it had over 50,000 miles! I recommended the car be sent to auction and not sold on 
-the lot. The biggest lesson of my life came next, never second guess your decision as an expert! If someone finds you were wrong, humbly accept the findings and learn from it. But never, and I mean NEVER 
+an obvious internal problem. To my surprise, this car looked like it had never had an oil change! If I remember correctly, it had over 50,000 miles! I recommended the car be sent to auction and not sold on 
+the lot. The biggest lesson of my life came next, never second guess your decision as an expert! If someone finds you were wrong, humbly accept the findings and learn from it. But never, and I mean NEVER, 
 go back on your original recommendation if you hold some doubt!
 
 So what happened? The Honda I was inspecting was fairly young. These were decent quality vehicles, usually very reliable. What's more, I experienced no stumbling, spuddering, or smoking when I went to pull it out of my bay following the initial inspection. 
 The same symptoms never manifested. I decided the following day I'd try starting it one more time. After all, the dealership spent money on this vehicle and they'd likely lose money if they sent it to auction
 when it was intended to be sold on the lot. So first thing in the morning, at the beginning of my shift I cranked it up. Still no repeat symptom. I happened to catch the sales manager on his way in and let him
-know what I'd found. "Great news, I decided to double check this car and it appears it wants to start normally every time for me. You might be able to sell that car worry free anyway with a little maintenance 
+know what I'd found. "Great news, I decided to double check this car and it appears it wants to start normally every time for me. You might be able to sell it worry free anyway with a little maintenance 
 update."
 
 Later that day I was called into my service manager's office. I was confused! Apparently I was being accused of "not wanting to work on the car." What I didn't know at the time was, the sales manager and my 
 service manager had been feuding. The sales manager took my information, mocked my service manager, making her look silly, and naturally I was the one to blame. Before I knew it, I was on a one day suspension 
 without pay while another technician would 'inspect the vehicle' to see if the symptom I'd claimed happend, the stumbling, spuddering, and smoking, was actually occuring. I was in a no-win situation. I was 
-about to lose my job! And what's worse, I knew nothing would happen for that other tech becuase I couldn't reproduce the symptom! And the most revolting thing of all, I was telling the truth!
+about to lose my job! And what's worse, I knew nothing would happen for the other tech becuase I couldn't reproduce the symptom myself! And the most revolting thing of all, I was telling the truth!
 
 I took a day off...
 
@@ -77,6 +77,6 @@ Or so I thought...
 It wasn't very much longer before I got that fateful call from my friend with the auto shop, "Hey, we can bring you on now..." 
 
 I didn't know what to do! "Do I say no? Do I partner as a cooperative business? After all I just formed this company, bought all this equipment, and decided to start." I did the comfortable thing. I decided to 
-contract work with them through my newly formed business. 
+contract work with them exclusively through my newly formed business, making me a defacto employee. 
 
 In my own mind, I was an entrepreneur!
