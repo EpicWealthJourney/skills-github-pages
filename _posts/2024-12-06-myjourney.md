@@ -6,7 +6,7 @@ date: 2024-12-06
 
 "I'd never felt pain like this before in my life! I don't believe in suicide. But if the pain persists like this forever, I don't see a way to continue! O Lord, please help me!"
 
-These were my thoughts in 2017. I knew I needed a different career path. That's why one year prior, in 2016, I decided to enroll back into college for engineering.
+These were my thoughts in 2017. I knew I needed a different career path. That's why one year prior in 2016, I decided to enroll back into college for engineering.
 
 But here I was between classes, popping half a container of ibuprofin(the only thing I could get my hands on) with no effect, just trying to kill the pain! I'd been an automotive 
 techician(auto mechanic) for 9 years, and master certified for 5 of them.
@@ -17,9 +17,9 @@ contorting vehicles in my rearview mirror. "If I could just get to that turn lan
 "Okay, that wasn't as bad as I thought it would be" I said to myself as I pulled my car off into the median. I got out to see what happened behind me.
 
 The scene was strange. I'd been in this situation several times before. (My first car was totaled this way. Someone wasn't paying attention and slammed into a line of cars while taking my 
-brother to a friend's house. We were in the middle.) I went back to the SUV which caused the whole thing. When I got there, the scene was so vivid! The front end of the SUV was in pieces all over the road. 
+brother to a friend's house. We were in the middle.) I went back to the SUV which caused the whole thing. When I got there, the scene was so vivid! The front end of the SUV sat in pieces all over the road. 
 The front end of the vehicle was impacted so hard it collapsed the frame in the front end and jammed the front doors of the truck shut. The woman was yelling, "We can't get out!" So I pried the driver 
-door open and ushered her and her son out of the SUV because other cars were driving up feet from the wreckage at full speed, swerving to avoid hitting the immobilized vehicle! They were in danger!
+door open and ushered her and her son out of the SUV. Other cars were driving up feet from the wreckage at full speed, swerving to avoid hitting the immobilized vehicle! They were in danger!
 
 I knew she had done tremendous damage and she was wrought with remorse, even yelling something to the effect "I was yelling at my son. I didn't mean for this to happen." This scene will forever be seered
 into my mind as the day that changed my life forever. The next morning, though I didn't perceive any issues the previous day, I woke up in discomfort and have never felt comfortable since!
@@ -28,10 +28,10 @@ into my mind as the day that changed my life forever. The next morning, though I
 
 Thinking I could simply continue my job and recover from the back pain through ciropractic care and physical therapy, I kept working as a technician for 3 more years. Although, by 2016 it became obvious. 
 There was no way to proceed in the career I'd worked so hard to obtain mastery in. I spoke to my managers at the dealership for which I worked and asked them if they could please send me more jobs which 
-would allow for less heavy lifting, pulling, or twisting. It was here I realized, if I wanted it my way I was on a fool's errand. 
+would allow for less heavy lifting, pulling, or twisting. It was here I realized, if I wanted it my way, I was on a fool's errand. 
 
-They gave me lip service but the business needs what it needs. There was little to no change in workload. Maybe they didn't believe that I was in pain despite the fact I'd been trying muscle relaxants at night,
- prescribed to me by the neurosurgeon, to relieve the pain. I soon had to stop them because they would still be affecting me at work! "I can't drive customer cars like this!" I thought...
+They gave me lip service but the business needs what it needs. There was little to no change in workload. Maybe they didn't believe I was in pain despite the fact I'd been trying muscle relaxants at night,
+ prescribed to me by the neurosurgeon, to relieve the pain. I soon had to stop them because their effect was still present at work! "I can't drive customer cars like this!" I thought...
 
 As the reality began to sink in deeper and deeper into my thick, stubborn skull, "I can't do this for much longer" I came up with a plan. I would go ahead and get a degree in engineering! I could at least 
 start the classes while I was still working there. But I'd need accomodations. I would need to be able to attend night classes and be off on the weekend for Saturday classes. It was working beautifly! They 
@@ -45,7 +45,7 @@ go back on your original recommendation if you hold some doubt!
 
 So what happened? The Honda I was inspecting was fairly young. These were decent quality vehicles, usually very reliable. What's more, I experienced no stumbling, spuddering, or smoking when I went to pull it out of my bay following the initial inspection. 
 The same symptoms never manifested. I decided the following day I'd try starting it one more time. After all, the dealership spent money on this vehicle and they'd likely lose money if they sent it to auction
-when it was intended to be sold on the lot. So first thing in the morning, at the beginning of my shift, I cranked it up. Still no repeat symptom. I happened to catch the sales manager on his way in and let him
+when it was intended to be sold on the lot. So first thing in the morning, at the beginning of my shift, I cranked it up. Still, no repeat symptom occurred. I happened to catch the sales manager on his way in and let him
 know what I'd found. "Great news, I decided to double check this car and it appears it wants to start normally every time for me. You might be able to sell it worry free anyway with a little maintenance 
 update."
 
@@ -60,8 +60,11 @@ I tried to prepare, as if it mattered, for the meeting I'd have with the manager
 It didn't matter. "You have two options," after a discussion about the situation and trying to defend myself(It didn't go well.), "you can resign your position or be fired."
 
 While you would expect I realized on this day, "I must do my own thing!" I did not. My beloved dog was dying! I got a call from my dad for help right after this meeting. My dog had been in a seizure for several 
-minutes and my dad couldn't get him out. I immediately headed out, told them I'd be back to collect my things, and took my dad with my dog to the vet. He never recovered from the seizure. We had to put him down...
+minutes and my dad couldn't get him out. I immediately headed out, told them I'd be back to collect my things, and took my dog, with my dad holding him, to the vet. He never recovered from the seizure. We had to put him down...
+
 This was by far the most painful day of my life, up to that point!
+
+The silver lining, God must have known I needed one more full day with my dog. So I got the day off...
 
 **Shaking Programming Won't Happen Overnight:**
 
