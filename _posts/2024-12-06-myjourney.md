@@ -16,9 +16,9 @@ I heard the crashing noises while setting feet from the left turn lane for that 
 contorting vehicles in my rearview mirror. "If I could just get to that turn lane!" I thought. Time slowed to a crawl. But it was too late! I felt my car jerk, not hard, but I definitely felt it.
 "Okay, that wasn't as bad as I thought it would be" I said to myself as I pulled my car off into the median. I got out to see what happened behind me.
 
-The scene was strange. I'd been in this situation several times before. (My first car was totaled this way. Someone wasn't paying attention and slammed into a line of cars I was in while taking my 
-brother to a friend's house.) I went back to the SUV which caused the whole thing. When I got there, the scene was so vivid! The front end of the SUV was in pieces all over the road. 
-The front end of the vehicle was impacted so hard it collapsed the frame in the front end and jammed the front doors of the truck shut. The woman was yelling, we can't get out! So I pried the driver 
+The scene was strange. I'd been in this situation several times before. (My first car was totaled this way. Someone wasn't paying attention and slammed into a line of cars while taking my 
+brother to a friend's house. We were in the middle.) I went back to the SUV which caused the whole thing. When I got there, the scene was so vivid! The front end of the SUV was in pieces all over the road. 
+The front end of the vehicle was impacted so hard it collapsed the frame in the front end and jammed the front doors of the truck shut. The woman was yelling, "We can't get out!" So I pried the driver 
 door open and ushered her and her son out of the SUV because other cars were driving up feet from the wreckage at full speed, swerving to avoid hitting the immobilized vehicle! They were in danger!
 
 I knew she had done tremendous damage and she was wrought with remorse, even yelling something to the effect "I was yelling at my son. I didn't mean for this to happen." This scene will forever be seered
@@ -26,14 +26,14 @@ into my mind as the day that changed my life forever. The next morning, though I
 
 **The Day My Reality Changed:**
 
-Thinking I could simply continue my job and recover from the back pain through ciropractic care and physical therapy, I kept working as a technician for 3 more years. Although, by 2016 it became obvious 
-there was no way to proceed in the career I'd worked so hard to obtain mastery in. I spoke to my managers at the dealership for which I worked and asked them if they could please send me more jobs which 
-would allow for less heavy lifting, pulling, or twisting. It was here I realized, if I wanted it my way I was on a fools errand. 
+Thinking I could simply continue my job and recover from the back pain through ciropractic care and physical therapy, I kept working as a technician for 3 more years. Although, by 2016 it became obvious. 
+There was no way to proceed in the career I'd worked so hard to obtain mastery in. I spoke to my managers at the dealership for which I worked and asked them if they could please send me more jobs which 
+would allow for less heavy lifting, pulling, or twisting. It was here I realized, if I wanted it my way I was on a fool's errand. 
 
 They gave me lip service but the business needs what it needs. There was little to no change in workload. Maybe they didn't believe that I was in pain despite the fact I'd been trying muscle relaxants at night,
  prescribed to me by the neurosurgeon, to relieve the pain. I soon had to stop them because they would still be affecting me at work! "I can't drive customer cars like this!" I thought...
 
-As the reality began to sink in deeper and deeper into my thick stubbourn skull, "I can't do this for much longer" I came up with a plan. I would go ahead and get a degree in engineering! I could at least 
+As the reality began to sink in deeper and deeper into my thick, stubborn skull, "I can't do this for much longer" I came up with a plan. I would go ahead and get a degree in engineering! I could at least 
 start the classes while I was still working there. But I'd need accomodations. I would need to be able to attend night classes and be off on the weekend for Saturday classes. It was working beautifly! They 
 gave me a position as the used car specialist inspecting and repairing used cars for the used car sales lot. This allowed me to work on weekdays only. But one fateful day everything changed...
 
@@ -45,7 +45,7 @@ go back on your original recommendation if you hold some doubt!
 
 So what happened? The Honda I was inspecting was fairly young. These were decent quality vehicles, usually very reliable. What's more, I experienced no stumbling, spuddering, or smoking when I went to pull it out of my bay following the initial inspection. 
 The same symptoms never manifested. I decided the following day I'd try starting it one more time. After all, the dealership spent money on this vehicle and they'd likely lose money if they sent it to auction
-when it was intended to be sold on the lot. So first thing in the morning, at the beginning of my shift I cranked it up. Still no repeat symptom. I happened to catch the sales manager on his way in and let him
+when it was intended to be sold on the lot. So first thing in the morning, at the beginning of my shift, I cranked it up. Still no repeat symptom. I happened to catch the sales manager on his way in and let him
 know what I'd found. "Great news, I decided to double check this car and it appears it wants to start normally every time for me. You might be able to sell it worry free anyway with a little maintenance 
 update."
 
@@ -67,7 +67,7 @@ This was by far the most painful day of my life, up to that point!
 
 Once I regained my wits, I called a friend who owned an autoshop and did the most comfortable thing I could think of. I asked him if he had a job opening. He'd started his own shop a couple years prior and
 I thought I could probably just help him. He and his wife said no. They didn't have a position at that time. After what I saw as a total injustice against me, I wasn't going to trust any other employer. I 
-decided to start my own business. I knew NOTHING about business. I had always been told you need to invest money up front, have a plan, go through lawyers and CPAs. I didn't have the business savy I do now.
+decided to start my own business. I knew NOTHING about business! I had always been told you need to invest money up front, have a plan, go through lawyers and CPAs. I didn't have the business savy I do now.
 
 So I started a company! I bought about $7,000 worth of equipment on top of the tools I already had. It wasn't a big deal because I'd saved over $40,000 dollars of my hard earned money at this point. I was an 
 entrepreneur! 
@@ -77,6 +77,6 @@ Or so I thought...
 It wasn't very much longer before I got that fateful call from my friend with the auto shop, "Hey, we can bring you on now..." 
 
 I didn't know what to do! "Do I say no? Do I partner as a cooperative business? After all I just formed this company, bought all this equipment, and decided to start." I did the comfortable thing. I decided to 
-contract work with them exclusively through my newly formed business, making me a defacto employee. 
+contract work with them exclusively through my newly formed business, making me a de facto employee. 
 
 In my own mind, I was an entrepreneur!
